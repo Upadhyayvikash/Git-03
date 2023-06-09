@@ -29,7 +29,7 @@ ___
 **Author**
 ____
 
-🙍‍♀️ Vikas Upadhyay
+🙍‍♂️ Vikas Upadhyay
 
 - Twitter: [@vikasu899]
 
